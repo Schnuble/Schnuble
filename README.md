@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Schnuble
+- 👀 I’m interested in Developing and Video-Games
+- 🌱 I’m currently learning something in IT
+- 📫 How to reach me? Just don't try it ^^
